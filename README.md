@@ -1,0 +1,3 @@
+# Alexa-code1
+Code
+AKIAXX3P2QZCTKGA2UWO
